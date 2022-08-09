@@ -4,5 +4,6 @@
 [amit goge resume (4).pdf](https://github.com/amitgoge07/amit.in/files/9289589/amit.goge.resume.4.pdf)
 ![1660041958025](https://user-images.githubusercontent.com/110841100/183635537-72286980-deea-414c-9152-061bbf36625f.jpg)
 ![IMG-20220809-WA0010](https://user-images.githubusercontent.com/110841100/183635556-d9490c08-966f-46c3-99ff-5e30b20d5a70.jpg)
+![1660045299691](https://user-images.githubusercontent.com/110841100/183638893-4e54fd34-6daf-4d07-a815-b19c536b2281.jpg)
 
 
