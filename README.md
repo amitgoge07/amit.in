@@ -13,11 +13,10 @@
 
 - 👨‍💻 All of my projects are available at [https://amitgoge07.github.io/amit.in/](https://amitgoge07.github.io/amit.in/)
 
-- 💬 Ask me about **Nothing 😂**
+- 💬 Ask me about **Front-end Dev**
 
 - 📫 How to reach me **amitgoge07@gmail.com**
 
-- ⚡ Fun fact **chutiya**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
