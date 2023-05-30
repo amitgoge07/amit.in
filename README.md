@@ -9,3 +9,17 @@
 ![download](https://user-images.githubusercontent.com/110841100/183643933-60e94bf3-55a6-47e3-a8e5-98b5c63adb9e.png)
 
 
+
+## Amit Goge
+
+# My Skills
+
+- Java
+- Python 
+- HTML
+- CSS
+- JavaScript
+
+
+
+
